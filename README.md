@@ -1,4 +1,7 @@
 
+![6F9TmbJBCPY](https://github.com/Natala-K/portfolio/assets/140326374/1e987fde-ddb4-467b-bb0d-82488eb0d9ee)
+
+
 
 # Наталия Ко
 
